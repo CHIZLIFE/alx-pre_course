@@ -1,1 +1,0 @@
-my journy was good 
